@@ -1,2 +1,0 @@
-# la-taro
-la-taro
